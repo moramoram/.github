@@ -2,10 +2,6 @@
 
 ![moramoram](https://user-images.githubusercontent.com/87457066/156883595-393de6a1-bced-4b9f-81c3-ae66a9fa32a5.svg)
 
-
-![image](https://user-images.githubusercontent.com/87457066/156883463-98445a68-23ca-45e3-b437-29e3d4fb5048.svg)
-
-<br /><br /><br /><br />
 </div>
 
 <!--
